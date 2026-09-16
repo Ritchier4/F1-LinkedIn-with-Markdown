@@ -43,4 +43,4 @@ Email Address: <em> emelycastillo97@gmail.com
 
 |Connections|
 |-----------|
-|Ritchie Ryese Rojo, Zendaya, Meryl Streep...403+|
+|Ritchie Ryese Rojo, Zendaya, Meryl Streep, and 403 more...|
